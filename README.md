@@ -1,0 +1,2 @@
+# HowToSuicideMethode
+Mumet
